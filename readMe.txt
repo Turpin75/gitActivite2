@@ -1,4 +1,4 @@
-Bonjour voici le projet : Course à la maison blanhe.
+Bonjour voici le projet : Course à la maison blanche.
 Les deux candidats sont :
 Clinton hillary
 Trump donald
